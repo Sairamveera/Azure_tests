@@ -1,1 +1,0 @@
-experience make man perfect
